@@ -1,0 +1,1 @@
+# praktikum_evidenca_kandidatov
